@@ -7,3 +7,5 @@ Adding blue and purple color around the avatar (all Forumotions forums and versi
 ![Screenshot_1](https://github.com/mihaiofficialRO/Adding-blue-and-purple-color-around-the-avatar/assets/29628232/5c86ff0b-c0e2-4782-9d06-cccf3d59e3fe)
 <br>
 ![Screenshot_1](https://github.com/mihaiofficialRO/Adding-blue-and-purple-color-around-the-avatar/assets/29628232/43d4dcf7-be23-4889-8b49-d5df3ccd8809)
+<br>
+![sFhh10G](https://github.com/mihaiofficialRO/Adding-blue-and-purple-color-around-the-avatar/assets/29628232/44052d66-8775-4b0b-af38-88a4dc27d39a)
